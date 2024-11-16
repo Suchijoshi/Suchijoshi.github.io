@@ -1,1 +1,1 @@
-# Suchijoshi.github.io
+# Suruchi Joshi Portfolio
